@@ -1,2 +1,2 @@
-Ronny Iñiguez 
+Ronny Iñiguez
 META DATABASE ENGINEER CERTIFICATION
